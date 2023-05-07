@@ -4,3 +4,4 @@ A developer with a keen eye for detail, constantly working to improve and refine
 
 * https://www.linkedin.com/in/nils-emil
 * https://nils-emil.github.io/
+* https://www.youtube.com/@nils-emillille9988
